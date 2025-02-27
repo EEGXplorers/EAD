@@ -1,3 +1,3 @@
 # EAD
 
-The Code will appear soon after paper acceptance
+Coming Soon. Stay Tuned.
